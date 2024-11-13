@@ -5,6 +5,8 @@
 
  * X(twitter)  
 [https://www.x.xom/mikoto-niconico](https://x.com/mikoto_niconico)
+ * Bluesky  
+[https://bsky.app/profile/mikoto-niconico.bsky.social](https://bsky.app/profile/mikoto-niconico.bsky.social)
  * youtube  
 [https://www.youtube.com/@mikoto-niconico](https://www.youtube.com/@mikoto-niconico)
  * ニコニコ動画  
