@@ -7,6 +7,8 @@
 [https://www.x.xom/mikoto-niconico](https://x.com/mikoto_niconico)
  * Bluesky  
 [https://bsky.app/profile/mikoto-niconico.bsky.social](https://bsky.app/profile/mikoto-niconico.bsky.social)
+ * amazon欲しいものリスト  
+[https://www.amazon.co.jp/hz/wishlist/ls/1BEP44MGZ6SO9](https://www.amazon.co.jp/hz/wishlist/ls/1BEP44MGZ6SO9)
  * youtube  
 [https://www.youtube.com/@mikoto-niconico](https://www.youtube.com/@mikoto-niconico)
  * ニコニコ動画  
